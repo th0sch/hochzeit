@@ -1,4 +1,4 @@
-## Wir heiraten und würden gern mit euch feiern!
+# Wir heiraten und würden gern mit euch feiern!
 
 ## Wann? 09.09.2023
 
